@@ -1,5 +1,5 @@
 # Cal-Ai
 First repo ever.
 <br>
-Upcomming Billionaire - Finn.
+Upcomming Billz - Finn.
 What the hell
